@@ -1,0 +1,3 @@
+La repo verrà aggiornata con il tempo, verranno aggiunti i vari appunti che ho preso durante il mio processo di studio, per la maggiore parte sono presi a mano, altri sono stati presi su Obsidian.
+Comprendono esercizi, definizioni e sfaciolate, possono contenere errori ovviamente, utilizzare il buonsenso quando li adoperate :D.
+More to come...
